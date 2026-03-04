@@ -1,7 +1,7 @@
 ## Bem-vindo ao meu perfil :D
 
-Me chamo Valdeci Júnior e tenho 18 anos 
-(de preferência ser chamado de junior)
+Me chamo Valdeci Júnior (de preferência ser chamado de junior) tenho 18 anos 
+
 Gosto de Jogos (Fps, BattleRoyale, Indie, entre outros...)
 
 Curso Técnico em Marketing – Concluído
