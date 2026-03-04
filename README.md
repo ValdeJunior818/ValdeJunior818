@@ -4,7 +4,7 @@ Me chamo Valdeci Júnior (de preferência ser chamado de junior) tenho 18 anos
 
 Gosto de Jogos (Fps, BattleRoyale, Indie, entre outros...)
 
-Curso Técnico em Marketing – Concluído
+Curso Técnico em Marketing em Vendas – Concluído
 EE Oscar Kurtz Camargo (Ribeirão Grande, SP) – 2025
 
 Curso Técnico em informática (Excel) - Concluído
