@@ -1,16 +1,18 @@
-## Hi there 👋
+## Bem-vindo ao meu perfil :D
 
-<!--
-**ValdeJunior818/ValdeJunior818** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chamo Valdeci Júnior e tenho 18 anos 
+(de preferência ser chamado de junior)
+Gosto de Jogos (Fps, BattleRoyale, Indie, entre outros...)
 
-Here are some ideas to get you started:
+Curso Técnico em Marketing – Concluído
+EE Oscar Kurtz Camargo (Ribeirão Grande, SP) – 2025
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Curso Técnico em informática (Excel) - Concluído
+Need Cursos (Capão Bonito, SP) - 2023
+
+Curso Manuntenção de Hardware - Concluído
+Need Cursos (Capão Bonito, SP) - 2025
+
+Aprendendo: JavaScript, Css e HTML 
+Fatec Registro - Em andamento
+
