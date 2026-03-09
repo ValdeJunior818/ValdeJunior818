@@ -1,6 +1,6 @@
 ## Bem-vindo ao meu perfil :D
 
-Me chamo Valdeci Júnior (de preferência ser chamado de junior) tenho 18 anos <br>
+Me chamo Valdeci Júnior tenho 18 anos <br>
 E busco aprender a área de programação 🖥️
 
 Gosto de Jogos 🎮 (Fps, BattleRoyale, Indie, entre outros...)
